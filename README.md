@@ -1,0 +1,1 @@
+The Repo's primary objective is to offer access codes for a range of Indian car head units, allowing automotive engineers and enthusiasts to gain additional information from the head unit. Please note that this is solely intended for educational purposes.
